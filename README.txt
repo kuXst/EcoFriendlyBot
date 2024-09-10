@@ -1,0 +1,1 @@
+Bu bot çok çevrecidir 
